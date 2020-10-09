@@ -7,6 +7,9 @@ YAYAYA Oct 5!
 
 October 6.......
 Today is Oct 7 alreay
+It's Oct 8
+
+
 
 
 
