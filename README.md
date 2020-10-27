@@ -11,6 +11,10 @@ It's Oct 8
 Oct 11 today
 Oct 13 日本語いける？
 Oct 14 いつやるのか？
+OCT 27 already. 覚えているか。大丈夫か。new
+
+
+
 
 
 
