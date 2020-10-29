@@ -14,6 +14,8 @@ Oct 14 いつやるのか？
 OCT 27 already. 覚えているか。大丈夫か。new
 OCT 28 COnflict になるんかな？
 どうかな
+OCT 29 Ganbare.....!
+
 
 
 
