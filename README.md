@@ -17,6 +17,8 @@ OCT 28 COnflict になるんかな？
 OCT 29 Ganbare.....!
 Nov 8 だよ
 すでにNov10どうしよう
+今日はNov11覚えているか。
+
 
 
 
