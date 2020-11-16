@@ -19,6 +19,7 @@ Nov 8 だよ
 すでにNov10どうしよう
 今日はNov11覚えているか。
 Today is Nov 12 at burlington rink
+Nov 16 どこまで進みましたか？
 
 
 
